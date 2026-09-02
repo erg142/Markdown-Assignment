@@ -17,4 +17,4 @@
 6. Put potatoes and onions into the mixture, allow to simmer for another 10-15 minutes.  
 7. Serve over rice!  
   
-![massaman curry][massaman curry.png]
+![massaman curry][massaman curry.jpg]
